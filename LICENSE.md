@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Photo for macOS with Affinity Photo for macOS automatic Template - blend modes and asset management, the #1 template. Includes blend modes and asset management
 
 
 
